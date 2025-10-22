@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://app.flowcv.com/resume/content](https://app.flowcv.com/resume/content)
 
-- ⚡ Fun fact **I'm all Dad Jokes!**
+- ⚡ Fun fact **I'm all about Dad Jokes!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
